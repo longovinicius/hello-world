@@ -9,6 +9,7 @@ I **will** complete these lessons!
 If you're thinking to yourself, **_This is unbelievable_**, you'd probably be right.
 
 [Search for it!](www.google.com)
+
 ![A pretty tiger](https://upload.wikimedia.org/wikipedia/commons/5/56/Tiger.50.jpg)
 
 I read this interesting quote the other day:
